@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bointyman
-- 👀 I’m interested in ... bointies
-- 🌱 I’m currently learning ... bointyspeak
-- 💞️ I’m looking to collaborate on ... The boints
+- 👀 I’m interested in ... All things bright and beautiful
+- 🌱 I’m currently learning ... How to speak French
+- 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... 
 
 <!---
